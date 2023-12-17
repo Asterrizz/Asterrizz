@@ -1,7 +1,6 @@
-[![MasterHead](https://i.pinimg.com/564x/f2/0d/5c/f20d5cddab4a47957b286fd0f174b571.jpg)](https://rishavchanda.io)
 <h1 align="center">Hiyaa !! ✧˖° I'm Asterr •⩊• !!</h1>
 <h3 align="center">☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆</h3>
-<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/b5/ff/ab/b5ffab63239c0f3627dc3a2fed9e8253.gif")
+<img align="right" alt="Coding" width="400" src="https://i.pinimg.com/564x/64/7c/ef/647ceff7f9a306b4ec66486192c91528.jpg")
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=asterrizz&label=Profile%20views&color=0e75b6&style=flat" alt="asterrizz" /> </p>
 
@@ -15,6 +14,6 @@
 
 - ˗ˏˋ ★ ˎˊ˗ ꜱɪʟʟʏ Qᴜᴏᴛᴇ !! **˗ 'ᵐᵉᵒʷˎˊ˗'**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">
 <p align="left">
 </p>
