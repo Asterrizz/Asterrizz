@@ -1,3 +1,4 @@
+[![MasterHead](https://i.pinimg.com/564x/f2/0d/5c/f20d5cddab4a47957b286fd0f174b571.jpg)](https://rishavchanda.io)
 <h1 align="center">Hiyaa !! ✧˖° I'm Asterr •⩊• !!</h1>
 <h3 align="center">☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆ ☆ ★ ✮ ★ ☆</h3>
 <img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/b5/ff/ab/b5ffab63239c0f3627dc3a2fed9e8253.gif")
