@@ -4,15 +4,15 @@
   
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=asterrizz&label=Profile%20views&color=0e75b6&style=flat" alt="asterrizz" /> </p>
 
-- ˗ˏˋ ★ ˎˊ˗ ᴍᴏʀᴇ ɪɴꜰᴏ ᴀʙᴏᴜᴛ ᴍᴇ !! [✧˖° ʙᴇɪɴɢ ꜱɪʟʟʏ (つ≧▽≦)つ](https://dprodigy.carrd.co/)
+- ˗ˏˋ ★ ˎˊ˗  ᴍᴏʀᴇ ɪɴꜰᴏ ᴀʙᴏᴜᴛ ᴍᴇ !! [✧˖° ʙᴇɪɴɢ ꜱɪʟʟʏ (つ≧▽≦)つ](https://dprodigy.carrd.co/)
 
-- ˗ˏˋ ★ ˎˊ˗ ɪ’ᴍ ᴄᴜʀʀᴇɴᴛʟʏ **✧˖° ᴀɴɴᴏʏɪɴɢ ᴀ ᴄᴇʀᴛᴀɪɴ ɪᴅɪᴏᴛ :3**
+- ˗ˏˋ ★ ˎˊ˗  ɪ’ᴍ ᴄᴜʀʀᴇɴᴛʟʏ **✧˖° ᴀɴɴᴏʏɪɴɢ ᴀ ᴄᴇʀᴛᴀɪɴ ɪᴅɪᴏᴛ :3**
 
-- ˗ˏˋ ★ ˎˊ˗ ᴘʀᴏɴᴏᴜɴꜱ ? [✧˖° ɢᴏᴛᴄʜᴀ !!](https://en.pronouns.page/@Asterizzz)
+- ˗ˏˋ ★ ˎˊ˗  ᴘʀᴏɴᴏᴜɴꜱ ? [✧˖° ɢᴏᴛᴄʜᴀ !!](https://en.pronouns.page/@Asterizzz)
 
-- ˗ˏˋ ★ ˎˊ˗ ɢᴜᴇꜱᴛʙᴏᴏᴋ [✧˖° ʟᴇᴀᴠᴇ ᴀ ʟɪʟ ꜱᴏᴍᴇᴛʜɪɴɢ :ᴏ ?](https://asterr.123guestbook.com/)
+- ˗ˏˋ ★ ˎˊ˗  ɢᴜᴇꜱᴛʙᴏᴏᴋ [✧˖° ʟᴇᴀᴠᴇ ᴀ ʟɪʟ ꜱᴏᴍᴇᴛʜɪɴɢ :ᴏ ?](https://asterr.123guestbook.com/)
 
-- ˗ˏˋ ★ ˎˊ˗ ꜱɪʟʟʏ Qᴜᴏᴛᴇ !! **˗ 'ᵐᵉᵒʷˎˊ˗'**
+- ˗ˏˋ ★ ˎˊ˗  ꜱɪʟʟʏ Qᴜᴏᴛᴇ !! **˗ 'ᵐᵉᵒʷˎˊ˗'**
 
 <h3 align="left">
 <p align="left">
