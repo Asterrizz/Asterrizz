@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="25" src="https://pix.crd.co/assets/images/gallery22/00a303a1_original.png?v=52ef41fa"  />
+  <img height="27" src="https://pix.crd.co/assets/images/gallery22/00a303a1_original.png?v=52ef41fa"  />
 </div>
 
 ###
