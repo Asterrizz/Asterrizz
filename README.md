@@ -4,10 +4,6 @@
 
 ###
 
-<h5 align="center">osu breaking my fingers fr <img height="13" src="https://supplies.ju.mp/assets/images/tiny1/264157fd.gif?v=6dca3fc4"</h5>  
-
-###
-
 <br clear="both">
 
 <div align="center">
