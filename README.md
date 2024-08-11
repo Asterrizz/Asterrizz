@@ -12,7 +12,7 @@ $\textcolor{(white)}{Everything} \ \textcolor{(white)}{passes.}$
 
 <div align="center">
 
-  [![StandWithPalestine](https://raw.githubusercontent.com/Safouene1/support-palestine-banner/master/StandWithPalestine.svg)](https://techforpalestine.org/learn-more)
+  [![StandWithPalestine](https://raw.githubusercontent.com/Safouene1/support-palestine-banner/master/StandWithPalestine.svg)](https://free-palestine.carrd.co/)
 
 
 ###
