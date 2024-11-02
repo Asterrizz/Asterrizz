@@ -10,6 +10,8 @@
 $\textcolor{(white)}{Everything} \ \textcolor{(white)}{passes.}$
 </p>
 
+<p align=center> <img src=https://komarev.com/ghpvc/?username=Asterrizz&color=c7b5be&style=flat-square&label=lukahaters&base=200>
+
 #### <p align="center"> [![](https://files.catbox.moe/1wqhs5.png)](https://rentry.co/beastchuuya)　[![](https://files.catbox.moe/1ltjt8.png)](https://discordid.netlify.app/?id=996009127765618768)
 #### <p align="center"> [![](https://files.catbox.moe/m9r3yy.png)](https://arab.org/click-to-help/palestine/)
 
