@@ -8,7 +8,7 @@
 
 <div align="center">
  
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Code+Pro&pause=20000&color=c7b5be&center=true&width=900&lines=%231+mouthwash+hater)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Source+Code+Pro&pause=20000&color=c7b5be&center=true&width=900&lines=%231+mouthwash+drinker)](https://git.io/typing-svg)
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=Asterrizz&color=c7b5be&style=flat-square&label=diabetes+counter&base=200>
 
